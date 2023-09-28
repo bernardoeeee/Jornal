@@ -1,7 +1,6 @@
 # Jornal
 
-audasdausdas
 
-asdasdasd
+[DOCUMENTAÇÃO.docx](https://github.com/bernardoeeee/Jornal/files/12748714/DOCUMENTACAO.docx)
 
-https://www.tiktok.com/@kauanlarusso/video/7162933627095993605
+
